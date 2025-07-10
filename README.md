@@ -10,4 +10,4 @@
 
 本平台提供丰富的欧美日韩在线精品资源，涵盖多样精彩内容，支持高清视频播放，满足用户多样化的观影需求。无论是经典大片还是热门新片，都能轻松找到并流畅观看。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/toi20250710/toi11 ）</span>
